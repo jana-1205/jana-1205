@@ -24,6 +24,7 @@ I design, build, and tinker with anything I can imagine—sometimes it works, so
 - Gym  
 - Building random things  
 - i draw. the world nods...reluctantly
+- Reading is my fav hobby
 
 ---
 
