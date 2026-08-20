@@ -1,7 +1,7 @@
 # Hey there! 👋
 
 I'm Jana, a software engineer student based in Jordan.  
-I design, build, and tinker with anything I can imagine—sometimes it works, sometimes it’s pure chaos.  
+I design, build, and tinker with anything I can imagine, sometimes it works, sometimes it’s pure chaos.  
 
 ---
 
